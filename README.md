@@ -1,6 +1,6 @@
 me chamo matheus 
 
-🏫 EStou aprendendo python e datemode atualmente 
+🏫 Estou aprendendo python e datemode atualmente 
 
 como chegar em mim :https://www.linkedin.com/in/matheus-oliveira-da-silva-905b9a298/
 
